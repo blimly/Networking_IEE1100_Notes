@@ -1,0 +1,1 @@
+![[Traadita kohtvõrk ja hajaspektriside/Pasted image 23.png]]
